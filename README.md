@@ -1,3 +1,5 @@
 # fdp202_Semana14_Clase2
 
-Me encanta dormir...
+Jose: la espaguetificacion es un proceso real llevado acabo en los agujeros negros
+Natalia: Me encanta dormir...
+
